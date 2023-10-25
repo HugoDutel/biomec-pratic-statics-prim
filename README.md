@@ -1,0 +1,1 @@
+# biomec-pratic-statics-prim
